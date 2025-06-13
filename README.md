@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently working on ML🫠<br>looking to collab and make a team✌️<br>University student😒<br>Curious about malwares😍<br>Fun- fact --> I am a bit lazy but productive.
+CURIOUS ABOUT HOW INFORMATION FLOWS 🫠<br>looking to collab and make a team✌️<br>University student😒<br>Curious About BACKENDS<br>Fun- fact -->  DM to collab.
 
 
 ## 🌐 Socials:
